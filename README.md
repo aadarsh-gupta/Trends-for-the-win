@@ -1,3 +1,3 @@
-# Trends speak volumes when interpreted correctly
+# Trends speak volumes 
 
 <i>To be updated!
